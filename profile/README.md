@@ -1,10 +1,10 @@
-## 91 Club App Register and Earn Money Online
+# 91 Club App Register and Earn Money Online
 
 91 Club App offers online earning money by playing games like Aviator, Dice, Limbo, Andar Bahar, Parity and many more. We're thrilled to have you onboard! Now that you're signed up and logged in, it's time to fund your 91 Club Game wallet and dive into the action. Depositing money is straightforward, but it's essential to follow the steps carefully to ensure a smooth transaction.
 
 👉👉 [**Sign Up Now**]([url](https://91-clubapk.com/)) 👈👈
 
-# 91 Club App Features
+## 91 Club App Features
 
 Here are some notable features of 91 Club App which make it more favorable than other similar apps. These features are 100 % real and as per customer reviews.
 
@@ -20,7 +20,7 @@ Here are some notable features of 91 Club App which make it more favorable than 
 
 6) 24*7 Customer Support - If you face any problem within app, you can directly contact your teacher or customer care.
 
-# 91 Club Apk Download
+## 91 Club Apk Download
 
 91 Club has introduced its official app, providing the same gaming experience as the web version. To get started, you'll need to download and install the APK file. Follow these simple steps:
 

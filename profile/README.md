@@ -2,8 +2,7 @@
 
 91 Club App offers online earning money by playing games like Aviator, Dice, Limbo, Andar Bahar, Parity and many more. We're thrilled to have you onboard! Now that you're signed up and logged in, it's time to fund your 91 Club Game wallet and dive into the action. Depositing money is straightforward, but it's essential to follow the steps carefully to ensure a smooth transaction.
 
-👉👉 [**Sign Up Now**]([url](https://www.91-clubapk.com/)) 👈👈
-
+👉👉 [Sign Up Now](https://www.91-clubapk.app)
 ## 91 Club App Features
 
 Here are some notable features of 91 Club App which make it more favorable than other similar apps. These features are 100 % real and as per customer reviews.
